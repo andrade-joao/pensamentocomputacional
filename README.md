@@ -1,2 +1,2 @@
 # pensamentocomputacional
-oi para as meninas 
+OI PARA AS MENINAS
