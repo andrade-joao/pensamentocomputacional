@@ -1,2 +1,1 @@
-# pensamentocomputacional
-OI PARA AS MENINAS
+# 1apensamento
